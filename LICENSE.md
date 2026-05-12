@@ -1,4 +1,4 @@
-# 
+# Get the ultimate birdeye sniper bot with premium birdeye sniper bot | sandwich-attack-execution + degen-coin-scanning. Featuring sandwich-attack-execution and degen-coin-scanning,
 
 
 
